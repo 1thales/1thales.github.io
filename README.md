@@ -1,1 +1,1 @@
-# ThalesOfMiletus.github.io
+# Thales21m.github.io
